@@ -1,6 +1,6 @@
 # 💫 About Me
 
-Hi, I'm **Krishna Kattimani** 👋
+Hi, I'm **Krishna ** 👋
 
 🎓 Computer Science & Engineering student (CGPA: 8.6), graduating in 2027 from KVG College of Engineering.
 
